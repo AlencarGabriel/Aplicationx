@@ -1,4 +1,0 @@
-Aplicationx
-===========
-
-sadfaddfsdfsdfsdafsdf
